@@ -1,9 +1,5 @@
 # The Earth's Far Bounds in Trembling Awe Abide - பூமியின் எல்லையாவும் பயந்திருக்கும்
 
-ஜெய் யேசு கிறிஸ்து – அவருடைய நாமத்தால் இரட்சிப்பின் பாடல்கள் பாடல் 2
-பூமி தேவனுக்கு பயந்து செவிகொடுக்கும், தேவன் ஆசீர்வதிக்கிறார், ஜனங்கள் துதிக்கிறார்கள் (சங்கீதம் 67).
-ஆமென். அல்லேலூயா!
-
 Psalm 67 – God’s face shines on His people, earth fears and yields fruit, nations praise Him, justice rules all. Echoes Exodus 15:14–16 (nations tremble), Psalm 96:9 (worship Him in holy splendor).
 Closing Prayer
 Lord Jesus Christ, righteous Judge over all earth,
